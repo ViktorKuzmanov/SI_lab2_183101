@@ -1,2 +1,2 @@
 
-![ScreenShot](https://ibb.co/mbxDfck})
+![image](https://ibb.co/mbxDfck)
